@@ -298,3 +298,20 @@ What is the most difficult part of being a leader?
 
 In some ways, although you are part of a group, you are alone. It’s a leader’s responsibility to see the end goal and vision of an organization to lead others towards it. When others do not see it the same way, you have to be the lone voice to bring them back on track.
 
+MANAGER ROUND
+
+1)
+How you faced conflict?
+
+When i faced conflict i like to ask question and understand my coworker prespective .It help to situation get s clam and also help they feel they are being heard hear.
+after the situation gets clam it is easy to me come out an agree ment  or settelment where both sides are win.
+
+2)
+
+are you able to handle pressure if yes then why?
+I think found myself very efficent under pressure as i feel it challenge my abality to  i need to prove myself .i found myself very creatinve under pressure with some deadlines.When i got such type of situation my first thif is be postive start doing work with more concentration.
+
+3)How you handle stress ,pressure ,?
+I belive wpork in regular manner and complete work within time . i react to situation rather than taking stresss .In this way i can handle pressure and dont take stress.
+
+4)
